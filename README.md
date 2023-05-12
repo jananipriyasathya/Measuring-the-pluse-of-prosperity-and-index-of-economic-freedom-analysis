@@ -1,0 +1,1 @@
+# Measuring-the-pluse-of-prosperity-and-index-of-economic-freedom-analysis
